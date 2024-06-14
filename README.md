@@ -1,1 +1,0 @@
-# Pierwszy_Projekt
